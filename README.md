@@ -1,4 +1,4 @@
 # higashiogura
 
 東がむっちゃ頑張りました。
-fugafuga
+fugafuga 48
